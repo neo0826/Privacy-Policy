@@ -44,4 +44,4 @@ Contact Us
 
 -We love Tell Any One Are Using A Bot We are responsible if anything happens to your server.
 
-Email: mapxoor1234@gmail.com Devs: Mapxoor
+Email: olosuper4@gmail.com Devs: i9x.
